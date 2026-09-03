@@ -1,19 +1,89 @@
-YªçŠx-®éÜj×¢ëiºÚ+Š§j[h‘éÜ¢éí×}xN‹Z–‹­¦ëeŠw¬Ôˆˆˆ)M…µÁ±”™É½´„ÑÉ…¥¹•µ½‘•°(ˆˆˆ)¥µÁ½ÉĞ½Ì)¥µÁ½ÉĞÁ¥­±”)™É½´½¹Ñ•áÑ±¥ˆ¥µÁ½ÉĞ¹Õ±±½¹Ñ•áĞ)¥µÁ½ÉĞÑ½É )¥µÁ½ÉĞÑ¥­Ñ½­•¸)™É½´µ½‘•°¥µÁ½ÉĞAQ½¹™¥œ°AP((Œ€´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´)¥¹¥Ñ}™É½´€ô€É•ÍÕµ”œ€Œ•¥Ñ¡•È€É•ÍÕµ”œ€¡™É½´…¸½ÕÑ}‘¥È¤½È„ÁĞÈÙ…É¥…¹Ğ€¡”¹œ¸€ÁĞÈµá°œ¤)½ÕÑ}‘¥È€ô€½ÕĞœ€Œ¥¹½É•¥˜¥¹¥Ñ}™É½´¥Ì¹½Ğ€É•ÍÕµ”œ)ÍÑ…ÉĞ€ô€‰q¸ˆ€Œ½È€ˆññ•¹‘½™Ñ•áÑğøˆ½È•ÑŒ¸…¸…±Í¼ÍÁ•¥™ä„™¥±”°ÕÍ”…Ìè€‰%1éÁÉ½µÁĞ¹ÑáĞˆ)¹Õµ}Í…µÁ±•Ì€ô€ÄÀ€Œ¹Õµ‰•È½˜Í…µÁ±•ÌÑ¼‘É…Ü)µ…á}¹•İ}Ñ½­•¹Ì€ô€ÔÀÀ€Œ¹Õµ‰•È½˜Ñ½­•¹Ì•¹•É…Ñ•¥¸•… Í…µÁ±”)Ñ•µÁ•É…ÑÕÉ”€ô€À¸à€Œ€Ä¸À€ô¹¼¡…¹”°€ğ€Ä¸À€ô±•ÍÌÉ…¹‘½´°€ø€Ä¸À€ôµ½É”É…¹‘½´°¥¸ÁÉ•‘¥Ñ¥½¹Ì)Ñ½Á}¬€ô€ÈÀÀ€ŒÉ•Ñ…¥¸½¹±äÑ¡”Ñ½Á}¬µ½ÍĞ±¥­•±äÑ½­•¹Ì°±…µÀ½Ñ¡•ÉÌÑ¼¡…Ù”€ÀÁÉ½‰…‰¥±¥Ñä)Í••€ô€ÄÌÌÜ)‘•Ù¥”€ô€Õ‘„œ€Œ•á…µÁ±•Ìè€ÁÔœ°€Õ‘„œ°€Õ‘„èÀœ°€Õ‘„èÄœ°•ÑŒ¸)‘ÑåÁ”€ô€‰™±½…ĞÄØœ¥˜Ñ½É ¹Õ‘„¹¥Í}…Ù…¥±…‰±” ¤…¹Ñ½É ¹Õ‘„¹¥Í}‰˜ÄÙ}ÍÕÁÁ½ÉÑ• ¤•±Í”€™±½…ĞÄØœ€Œ€™±½…ĞÌÈœ½È€‰™±½…ĞÄØœ½È€™±½…ĞÄØœ)½µÁ¥±”€ô…±Í”€ŒÕÍ”AåQ½É €È¸ÀÑ¼½µÁ¥±”Ñ¡”µ½‘•°Ñ¼‰”™…ÍÑ•È)•á•Œ¡½Á•¸ ½¹™¥ÕÉ…Ñ½È¹Áäœ¤¹É•… ¤¤€Œ½Ù•ÉÉ¥‘•Ì™É½´½µµ…¹±¥¹”½È½¹™¥œ™¥±”(Œ€´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´()Ñ½É ¹µ…¹Õ…±}Í••¡Í••¤)Ñ½É ¹Õ‘„¹µ…¹Õ…±}Í••¡Í••¤)Ñ½É ¹‰…­•¹‘Ì¹Õ‘„¹µ…ÑµÕ°¹…±±½İ}Ñ˜ÌÈ€ôQÉÕ”€Œ…±±½ÜÑ˜ÌÈ½¸µ…ÑµÕ°)Ñ½É ¹‰…­•¹‘Ì¹Õ‘¹¸¹…±±½İ}Ñ˜ÌÈ€ôQÉÕ”€Œ…±±½ÜÑ˜ÌÈ½¸Õ‘¹¸)‘•Ù¥•}ÑåÁ”€ô€Õ‘„œ¥˜€Õ‘„œ¥¸‘•Ù¥”•±Í”€ÁÔœ€Œ™½È±…Ñ•ÈÕÍ”¥¸Ñ½É ¹…ÕÑ½…ÍĞ)ÁÑ‘ÑåÁ”€ôï}x¶‰ËkºwµçH™\]Z\™\ÈUÜ˜Ú‹Œ
-Ü[Û˜[
-B‚ˆÈÛÚÈ›ÜˆHY]HXÚÛH[ˆØ\ÙH]\È]˜Z[X›H[ˆH]\Ù]›Û\‚›ØYÛY]HH˜[ÙBšYˆ[š]Ùœ›ÛHOH	Ü™\İ[YIÈ[™	ØÛÛ™šYÉÈ[ˆÚXÚÜÚ[[™	Ù]\Ù]	È[ˆÚXÚÜÚ[ÉØÛÛ™šYÉ×NˆÈÛ\ˆÚXÚÜÚ[ÈZYÚ›İ]™H\ÙK‹‹‚ˆY]WÜ]HÜËœ]š›Ú[Š	Ù]IËÚXÚÜÚ[ÉØÛÛ™šYÉ×VÉÙ]\Ù]	×K	ÛY]KœÛ	ÊBˆØYÛY]HHÜËœ]™^\İÊY]WÜ]
-BšYˆØYÛY]N‚ˆš[
-ˆ“ØY[™ÈY]Hœ›ÛHÛY]WÜ]K‹‹ˆŠBˆÚ]Ü[ŠY]WÜ]	Ü˜‰ÊH\È‚ˆY]HHXÚÛK›ØY
-ŠBˆÈÑÈØ[ÈXZÙH\È[Ü™HÙ[™\˜[È\˜š]˜\H[˜ÛÙ\‹ÙXÛÙ\ˆØÚ[Y\ÂˆİÚK]ÜÈHY]VÉÜİÚI×KY]VÉÚ]ÜÉ×Bˆ[˜ÛÙHH[X™HÎˆÜİÚVØ×H›ÜˆÈ[ˆ×BˆXÛÙHH[X™Hˆ	ÉËš›Ú[ŠÚ]ÜÖÚWH›ÜˆH[ˆJB™[ÙN‚ˆÈÚÈ]	ÜÈ\Üİ[YHÜLˆ[˜ÛÙ[™ÜÈHY˜][ˆš[
-“›ÈY]KœÛ›İ[™\Üİ[Z[™ÈÔLˆ[˜ÛÙ[™ÜË‹‹ˆŠBˆ[˜ÈHZİÚÙ[‹™Ù]Ù[˜ÛÙ[™Ê™ÜˆŠBˆ[˜ÛÙHH[X™HÎˆ[˜Ë™[˜ÛÙJË[İÙYÜÜXÚX[^È[™Ù^ˆŸJBˆXÛÙHH[X™Hˆ[˜Ë™XÛÙJ
-B‚ˆÈ[˜ÛÙHH™YÚ[›š[™ÈÙˆH›Û\šYˆİ\œİ\İÚ]
-	Ñ’SN‰ÊN‚ˆÚ]Ü[Šİ\ÍN—K	Ü‰Ë[˜ÛÙ[™ÏIİ]‹N	ÊH\È‚ˆİ\H‹œ™XY
+"""
+Sample from a trained model
+"""
+import os
+import pickle
+from contextlib import nullcontext
+import torch
+import tiktoken
+from model import GPTConfig, GPT
 
-Bœİ\ÚYÈH[˜ÛÙJİ\
-BH
-Ü˜Ú[œÛÜŠİ\ÚYË\O]Ü˜Ú›Û™Ë]šXÙOY]šXÙJVÓ›Û™K‹‹—JB‚ˆÈ[ˆÙ[™\˜][Û‚Ú]Ü˜Ú››×ÙÜ˜Y
+# -----------------------------------------------------------------------------
+init_from = 'resume' # either 'resume' (from an out_dir) or a gpt2 variant (e.g. 'gpt2-xl')
+out_dir = 'out' # ignored if init_from is not 'resume'
+start = "\n" # or "<|endoftext|>" or etc. Can also specify a file, use as: "FILE:prompt.txt"
+num_samples = 10 # number of samples to draw
+max_new_tokens = 500 # number of tokens generated in each sample
+temperature = 0.8 # 1.0 = no change, < 1.0 = less random, > 1.0 = more random, in predictions
+top_k = 200 # retain only the top_k most likely tokens, clamp others to have 0 probability
+seed = 1337
+device = 'cuda' # examples: 'cpu', 'cuda', 'cuda:0', 'cuda:1', etc.
+dtype = 'bfloat16' if torch.cuda.is_available() and torch.cuda.is_bf16_supported() else 'float16' # 'float32' or 'bfloat16' or 'float16'
+compile = False # use PyTorch 2.0 to compile the model to be faster
+exec(open('configurator.py').read()) # overrides from command line or config file
+# -----------------------------------------------------------------------------
 
-N‚ˆÚ]İ‚ˆ›ÜˆÈ[ˆ˜[™ÙJ[WÜØ[\\ÊN‚ˆHH[Ù[™Ù[™\˜]JX^Û™]×İÚÙ[œË[\\˜]\™O][\\˜]\™KÜÚÏ]ÜÚÊBˆš[
-XÛÙJVÌKÛ\İ
+torch.manual_seed(seed)
+torch.cuda.manual_seed(seed)
+torch.backends.cuda.matmul.allow_tf32 = True # allow tf32 on matmul
+torch.backends.cudnn.allow_tf32 = True # allow tf32 on cudnn
+device_type = 'cuda' if 'cuda' in device else 'cpu' # for later use in torch.autocast
+ptdtype = {'float32': torch.float32, 'bfloat16': torch.bfloat16, 'float16': torch.float16}[dtype]
+ctx = nullcontext() if device_type == 'cpu' else torch.amp.autocast(device_type=device_type, dtype=ptdtype)
 
-JJBˆš[
-	ËKKKKKKKKKKKKKKIÊB
+# model
+if init_from == 'resume':
+    # init from a model saved in a specific directory
+    ckpt_path = os.path.join(out_dir, 'ckpt.pt')
+    checkpoint = torch.load(ckpt_path, map_location=device)
+    gptconf = GPTConfig(**checkpoint['model_args'])
+    model = GPT(gptconf)
+    state_dict = checkpoint['model']
+    unwanted_prefix = '_orig_mod.'
+    for k,v in list(state_dict.items()):
+        if k.startswith(unwanted_prefix):
+            state_dict[k[len(unwanted_prefix):]] = state_dict.pop(k)
+    model.load_state_dict(state_dict)
+elif init_from.startswith('gpt2'):
+    # init from a given GPT-2 model
+    model = GPT.from_pretrained(init_from, dict(dropout=0.0))
+
+model.eval()
+model.to(device)
+if compile:
+    model = torch.compile(model) # requires PyTorch 2.0 (optional)
+
+# look for the meta pickle in case it is available in the dataset folder
+load_meta = False
+if init_from == 'resume' and 'config' in checkpoint and 'dataset' in checkpoint['config']: # older checkpoints might not have these...
+    meta_path = os.path.join('data', checkpoint['config']['dataset'], 'meta.pkl')
+    load_meta = os.path.exists(meta_path)
+if load_meta:
+    print(f"Loading meta from {meta_path}...")
+    with open(meta_path, 'rb') as f:
+        meta = pickle.load(f)
+    # TODO want to make this more general to arbitrary encoder/decoder schemes
+    stoi, itos = meta['stoi'], meta['itos']
+    encode = lambda s: [stoi[c] for c in s]
+    decode = lambda l: ''.join([itos[i] for i in l])
+else:
+    # ok let's assume gpt-2 encodings by default
+    print("No meta.pkl found, assuming GPT-2 encodings...")
+    enc = tiktoken.get_encoding("gpt2")
+    encode = lambda s: enc.encode(s, allowed_special={"<|endoftext|>"})
+    decode = lambda l: enc.decode(l)
+
+# encode the beginning of the prompt
+if start.startswith('FILE:'):
+    with open(start[5:], 'r', encoding='utf-8') as f:
+        start = f.read()
+start_ids = encode(start)
+x = (torch.tensor(start_ids, dtype=torch.long, device=device)[None, ...])
+
+# run generation
+with torch.no_grad():
+    with ctx:
+        for k in range(num_samples):
+            y = model.generate(x, max_new_tokens, temperature=temperature, top_k=top_k)
+            print(decode(y[0].tolist()))
+            print('---------------')
