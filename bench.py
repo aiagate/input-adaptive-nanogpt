@@ -1,32 +1,117 @@
-YªçŠx-®éÜj×¢ëiºÚ+Š§j[h‘éÜ¢éí×­9N‹Z–‹­¦ëeŠw¬Ôˆˆˆ)µÕ Í¡½ÉÑ•ÈÙ•ÉÍ¥½¸½˜ÑÉ…¥¸¹Áä™½È‰•¹¡µ…É­¥¹œ(ˆˆˆ)¥µÁ½ÉĞ½Ì)™É½´½¹Ñ•áÑ±¥ˆ¥µÁ½ÉĞ¹Õ±±½¹Ñ•áĞ)¥µÁ½ÉĞ¹ÕµÁä…Ì¹À)¥µÁ½ÉĞÑ¥µ”)¥µÁ½ÉĞÑ½É )™É½´µ½‘•°¥µÁ½ÉĞAQ½¹™¥œ°AP((Œ€´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´)‰…Ñ¡}Í¥é”€ô€ÄÈ)‰±½­}Í¥é”€ô€ÄÀÈĞ)‰¥…Ì€ô…±Í”)É•…±}‘…Ñ„€ôQÉÕ”)Í••€ô€ÄÌÌÜ)‘•Ù¥”€ô€Õ‘„œ€Œ•á…µÁ±•Ìè€ÁÔœ°€Õ‘„œ°€Õ‘„èÀœ°€Õ‘„èÄœ°•ÑŒ¸)‘ÑåÁ”€ô€‰™±½…ĞÄØœ¥˜Ñ½É ¹Õ‘„¹¥Í}…Ù…¥±…‰±” ¤…¹Ñ½É ¹Õ‘„¹¥Í}‰˜ÄÙ}ÍÕÁÁ½ÉÑ• ¤•±Í”€™±½…ĞÄØœ€Œ€™±½…ĞÌÈœ½È€‰™±½…ĞÄØœ½È€™±½…ĞÄØœ)½µÁ¥±”€ôQÉÕ”€ŒÕÍ”AåQ½É €È¸ÀÑ¼½µÁ¥±”Ñ¡”µ½‘•°Ñ¼‰”™…ÍÑ•È)ÁÉ½™¥±”€ô…±Í”€ŒÕÍ”ÁåÑ½É ÁÉ½™¥±•È°½È©ÕÍĞÍ¥µÁ±”‰•¹¡µ…É­¥¹œü)•á•Œ¡½Á•¸ ½¹™¥ÕÉ…Ñ½È¹Áäœ¤¹É•… ¤¤€Œ½Ù•ÉÉ¥‘•Ì™É½´½µµ…¹±¥¹”½È½¹™¥œ™¥±”(Œ€´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´´()Ñ½É ¹µ…¹Õ…±}Í••¡Í••¤)Ñ½É ¹Õ‘„¹µ…¹Õ…±}Í••¡Í••¤)Ñ½É ¹‰…­•¹‘Ì¹Õ‘„¹µ…ÑµÕ°¹…±±½İ}Ñ˜ÌÈ€ôQÉÕ”€Œ…±±½ÜÑ˜ÌÈ½¸µ…ÑµÕ°)Ñ½É ¹‰…­•¹‘Ì¹Õ‘¹¸¹…±±½İ}Ñ˜ÌÈ€ôQÉÕ”€Œ…±±½ÜÑ˜ÌÈ½¸Õ‘¹¸)‘•Ù¥•}ÑåÁ”€ô€Õ‘„œ¥˜€Õ‘„œ¥¸‘•Ù¥”•±Í”€ÁÔœ€Œ™½È±…Ñ•ÈÕÍ”¥¸Ñ½É ¹…ÕÑ½…ÍĞ)ÁÑ‘ÑåÁ”€ôì™±½…ĞÌÈœèÑ½É ¹™±½…ĞÌÈ°€‰™±½…ĞÄØœèÑ½É ¹‰™±½…ĞÄØ°€™±½…ĞÄØœèÑ½É ¹™±½…ĞÄÙõm‘ÑåÁ•t)Ñà€ô¹Õ±±½¹Ñ•áĞ ¤¥˜‘•Ù¥•}ÑåÁ”€ôô€ÁÔœ•±Í”Ñ½É ¹…µÀ¹…ÕÑ½…ÍĞ¡‘•Ù¥•}ÑåÁ”õ‘•Ù¥•}ÑåÁ”°‘ÑåÁ”õÁÑ‘ÑåÁ”¤((Œ‘…Ñ„±½…‘¥¹œ¥¹¥Ğ)¥˜É•…±}‘…Ñ„è(€€€‘…Ñ…Í•Ğ€ô€½Á•¹İ•‰Ñ•áĞœ(€€€‘…Ñ…}‘¥È€ô½Ì¹Á…Ñ ¹©½¥¸ ‘…Ñ„œ°‘…Ñ…Í•Ğ¤(€€€ÑÉ…¥¹}‘…Ñ„€ô¹À¹µ•µµ…À¡½Ì¹Á…Ñ ¹©½¥¸¡‘…Ñ…}‘¥È°€ÑÉ…¥¸¹‰¥¸œ¤°‘ÑåÁ”õ¹À¹Õ§­9¶‰Ëkºwµç[œÛÜ˜›Ø\™İ˜XÙWÚ[™\Š	Ë‹Ø™[˜ÚÛÙÉÊKˆ™XÛÜ™ÜÚ\\ÏQ˜[ÙKˆ›Ùš[WÛY[[ÜOQ˜[ÙKˆÚ]ÜİXÚÏQ˜[ÙKÈ[˜İ\œÈ[ˆY][Û˜[İ™\šXY\ØX›HYˆ›İ™YYYˆÚ]Ù›ÜÏUYKˆÚ]Û[Ù[\ÏQ˜[ÙKÈÛ›H›ÜˆÜ˜ÚØÜš\[Ù[È]Bˆ
-H\È›Ù‚‚ˆHHÙ]Ø˜]Ú
-	İ˜Z[‰ÊBˆ›ÜˆÈ[ˆ˜[™ÙJ[WÜİ\ÊN‚ˆÚ]İ‚ˆÙÚ]ËÜÜÈH[Ù[
-JBˆHHÙ]Ø˜]Ú
-	İ˜Z[‰ÊBˆÜ[Z^™\‹™\›×ÙÜ˜Y
-Ù]İ×Û›Û™OUYJBˆÜÜË˜˜XÚİØ\™
+"""
+A much shorter version of train.py for benchmarking
+"""
+import os
+from contextlib import nullcontext
+import numpy as np
+import time
+import torch
+from model import GPTConfig, GPT
 
-BˆÜ[Z^™\‹œİ\
+# -----------------------------------------------------------------------------
+batch_size = 12
+block_size = 1024
+bias = False
+real_data = True
+seed = 1337
+device = 'cuda' # examples: 'cpu', 'cuda', 'cuda:0', 'cuda:1', etc.
+dtype = 'bfloat16' if torch.cuda.is_available() and torch.cuda.is_bf16_supported() else 'float16' # 'float32' or 'bfloat16' or 'float16'
+compile = True # use PyTorch 2.0 to compile the model to be faster
+profile = False # use pytorch profiler, or just simple benchmarking?
+exec(open('configurator.py').read()) # overrides from command line or config file
+# -----------------------------------------------------------------------------
 
-BˆÜÜÙˆHÜÜËš][J
-Bˆš[
-ˆÚßKŞÛ[WÜİ\ßHÜÜÎˆÛÜÜÙ‹ŸHŠB‚ˆ›Ù‹œİ\
+torch.manual_seed(seed)
+torch.cuda.manual_seed(seed)
+torch.backends.cuda.matmul.allow_tf32 = True # allow tf32 on matmul
+torch.backends.cudnn.allow_tf32 = True # allow tf32 on cudnn
+device_type = 'cuda' if 'cuda' in device else 'cpu' # for later use in torch.autocast
+ptdtype = {'float32': torch.float32, 'bfloat16': torch.bfloat16, 'float16': torch.float16}[dtype]
+ctx = nullcontext() if device_type == 'cpu' else torch.amp.autocast(device_type=device_type, dtype=ptdtype)
 
-HÈ›İYHH›Ùš[\ˆ][™ÙˆXXÚİ\‚™[ÙN‚‚ˆÈÚ[\H™[˜ÚX\šÚ[™ÂˆÜ˜Ú˜İYKœŞ[˜Ú›Ûš^™J
-Bˆ›ÜˆİYÙK[WÜİ\È[ˆ[[Y\˜]JÌLŒJNˆÈ\›š[‹[ˆ™[˜ÚX\šÂˆH[YK[YJ
-BˆHHÙ]Ø˜]Ú
-	İ˜Z[‰ÊBˆ›ÜˆÈ[ˆ˜[™ÙJ[WÜİ\ÊN‚ˆÚ]İ‚ˆÙÚ]ËÜÜÈH[Ù[
-JBˆHHÙ]Ø˜]Ú
-	İ˜Z[‰ÊBˆÜ[Z^™\‹™\›×ÙÜ˜Y
-Ù]İ×Û›Û™OUYJBˆÜÜË˜˜XÚİØ\™
+# data loading init
+if real_data:
+    dataset = 'openwebtext'
+    data_dir = os.path.join('data', dataset)
+    train_data = np.memmap(os.path.join(data_dir, 'train.bin'), dtype=np.uint16, mode='r')
+    def get_batch(split):
+        data = train_data # note ignore split in benchmarking script
+        ix = torch.randint(len(data) - block_size, (batch_size,))
+        x = torch.stack([torch.from_numpy((data[i:i+block_size]).astype(np.int64)) for i in ix])
+        y = torch.stack([torch.from_numpy((data[i+1:i+1+block_size]).astype(np.int64)) for i in ix])
+        x, y = x.pin_memory().to(device, non_blocking=True), y.pin_memory().to(device, non_blocking=True)
+        return x, y
+else:
+    # alternatively, if fixed data is desired to not care about data loading
+    x = torch.randint(50304, (batch_size, block_size), device=device)
+    y = torch.randint(50304, (batch_size, block_size), device=device)
+    get_batch = lambda split: (x, y)
 
-BˆÜ[Z^™\‹œİ\
+# model init
+gptconf = GPTConfig(
+    block_size = block_size, # how far back does the model look? i.e. context size
+    n_layer = 12, n_head = 12, n_embd = 768, # size of the model
+    dropout = 0, # for determinism
+    bias = bias,
+)
+model = GPT(gptconf)
+model.to(device)
 
-BˆÜÜÙˆHÜÜËš][J
-Bˆš[
-ˆÚßKŞÛ[WÜİ\ßHÜÜÎˆÛÜÜÙ‹ŸHŠBˆÜ˜Ú˜İYKœŞ[˜Ú›Ûš^™J
-BˆHH[YK[YJ
-BˆHK]ˆYHH[Ù[™\İ[X]WÛYJ˜]ÚÜÚ^™H
-ˆH
-ˆ[WÜİ\Ë
-BˆYˆİYÙHOHN‚ˆš[
-ˆ[YH\ˆ]\˜][ÛˆÙÛ[WÜİ\ÊŒL‹Ÿ[\ËQ•NˆÛYJŒL‹Œ™ŸIHŠB
+optimizer = model.configure_optimizers(weight_decay=1e-2, learning_rate=1e-4, betas=(0.9, 0.95), device_type=device_type)
+
+if compile:
+    print("Compiling model...")
+    model = torch.compile(model) # pytorch 2.0
+
+if profile:
+    # useful docs on pytorch profiler:
+    # - tutorial https://pytorch.org/tutorials/intermediate/tensorboard_profiler_tutorial.html
+    # - api https://pytorch.org/docs/stable/profiler.html#torch.profiler.profile
+    wait, warmup, active = 5, 5, 5
+    num_steps = wait + warmup + active
+    with torch.profiler.profile(
+        activities=[torch.profiler.ProfilerActivity.CPU, torch.profiler.ProfilerActivity.CUDA],
+        schedule=torch.profiler.schedule(wait=wait, warmup=warmup, active=active, repeat=1),
+        on_trace_ready=torch.profiler.tensorboard_trace_handler('./bench_log'),
+        record_shapes=False,
+        profile_memory=False,
+        with_stack=False, # incurs an additional overhead, disable if not needed
+        with_flops=True,
+        with_modules=False, # only for torchscript models atm
+    ) as prof:
+
+        X, Y = get_batch('train')
+        for k in range(num_steps):
+            with ctx:
+                logits, loss = model(X, Y)
+            X, Y = get_batch('train')
+            optimizer.zero_grad(set_to_none=True)
+            loss.backward()
+            optimizer.step()
+            lossf = loss.item()
+            print(f"{k}/{num_steps} loss: {lossf:.4f}")
+
+            prof.step() # notify the profiler at end of each step
+
+else:
+
+    # simple benchmarking
+    torch.cuda.synchronize()
+    for stage, num_steps in enumerate([10, 20]): # burnin, then benchmark
+        t0 = time.time()
+        X, Y = get_batch('train')
+        for k in range(num_steps):
+            with ctx:
+                logits, loss = model(X, Y)
+            X, Y = get_batch('train')
+            optimizer.zero_grad(set_to_none=True)
+            loss.backward()
+            optimizer.step()
+            lossf = loss.item()
+            print(f"{k}/{num_steps} loss: {lossf:.4f}")
+        torch.cuda.synchronize()
+        t1 = time.time()
+        dt = t1-t0
+        mfu = model.estimate_mfu(batch_size * 1 * num_steps, dt)
+        if stage == 1:
+            print(f"time per iteration: {dt/num_steps*1000:.4f}ms, MFU: {mfu*100:.2f}%")
