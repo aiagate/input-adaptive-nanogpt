@@ -1,0 +1,12 @@
+[project]
+name = "input-adaptive-nanogpt"
+version = "0.1.0"
+description = "Causal input-budget experiments built from nanoGPT"
+requires-python = ">=3.10"
+dependencies = ["numpy", "requests", "torch"]
+
+[dependency-groups]
+dev = ["pytest"]
+
+[tool.pytest.ini_options]
+pythonpath = ["."]
